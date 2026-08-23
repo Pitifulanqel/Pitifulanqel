@@ -6,7 +6,7 @@
 - **Age:** Minor
 - **Pronouns:** Any pronouns
 - **Time Zone:** GMT +8
-- **Vibe:** Usually sarcastic, socially awkward
+- **personality:** Usually sarcastic, socially awkward
 
 ---
 
