@@ -1,4 +1,4 @@
-# 🌌 Welcome to Cerise's Profile! (Ceri / Vera / Noe)
+# 🌌 Welcome to my Profile! (Ceri / Vera / Noe)
 
 > “ Youre useless, less than useless, you're sick ” — 🖤
 
@@ -6,7 +6,7 @@
 - **Age:** Minor
 - **Pronouns:** Any pronouns
 - **Time Zone:** GMT +8
-- **personality:** Usually sarcastic, socially awkward
+- **Personality:** Usually sarcastic, socially awkward, or quiet
 
 ---
 
@@ -18,13 +18,25 @@
 
 ### 💖 Yumeship / Self-Shipping (Selective Sharing)
 *Please respect my boundaries regarding my self-ships!*
-- ⚔️ **Kris** (Deltarune) x **Inari Kou** (Yume Sona) — **Strictly Selective Sharing**
+- ⚔️ **Kris** (Deltarune) x **Inari Kou** (Yume Sona) — **Non Sharing**
 - 🃏 **Sigma** (Bungo Stray Dogs) — **Selective Sharing**
-- 🏀 **Kel** (Omori) — **Strictly Selective Sharing**
+- 🏀 **Kel** (Omori) — **Selective Sharing**
 
 ---
 
-### 🔮 Main Fandoms: DELTARUNE , Bungo Stray Dogs (BSD) and Omori
+### 💍 OTPs (One True Pairings)
+- 🦊⚔️ **Kris x Inari Kou** (Main Sona OTP!)
+- 🎻🎀 **Sunny x Aubrey** (Omori)
+- 🥪💮 **Hero x Mari** (Omori)
+- 🦌🪓 **Noelle x Susie** (Deltarune)
+- 🐀🤡 **Fyodor x Nikolai** (Bungo Stray Dogs)
+- 🕒💎 **Two-time x Azure** (Forsaken)
+- 🛡️🐦 **Kris x Berdly** (Deltarune)
+- 📃🚪 **Oliver x Alice** (FPE)
+
+---
+
+### 🔮 Main Fandoms: DELTARUNE & Bungo Stray Dogs (BSD)
 - **Interests:** Deltarune, Bungo Stray Dogs (BSD), Undertale, Omori, Hello Charlotte, Block Tales, Ranfren, Dandy's World, Seraph of the End, Vanitas no Carte, FPE, NSO.
 - **Likes:** Playing indie games, true crime, reading, and **sleep** 💤
 
@@ -39,7 +51,7 @@
 | 🛡️ | **Kris** | Deltarune | Active cosplay |
 | 🦌 | **Noelle** | Deltarune | Active cosplay |
 | 🌲 | **Elliot** | Forsaken | Active cosplay |
-| 🕒 | **Two-Time** | Forsaken | Active cosplay |
+| 🕒 | **Two-Time** | Forsaken | Active cosplay|
 | 🎭 | **Other Cosplays** | Various Fandoms | Frequently switching characters! |
 
 ---
@@ -51,15 +63,11 @@
 ---
 
 ### 🛑 Interaction Rules
-* Please **do not to be suggestive with me**, it makes me highly uncomfortable!
+* Please **do not attempt to be freaky with me**, it makes me highly uncomfortable!
 * If I am doing something wrong or say something out of line, please **tell me immediately**.
 * **Cuddles/Sitting:** Completely free! No need to ask.
-* **DNT (Do Not Touch):** you can touch/sit by me!
-* **Whispers/PMs:** Open any chatter!
-* I block freely!
-
+* **DNT (Do Not Touch):** No, you can touch/sit by me!
+* **Whispers/PMs:** Open for Deltarune or game chatter!
+* **DNI**: basic criteria, Kris doubles, but I block freely
 ---
 
-### 🍉 Looking for...
-- [ ] Deltarune cosplay groups on Pony Town 
-- [ ] Friends to chat with and Friends with mutual fandom
