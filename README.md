@@ -5,6 +5,7 @@
 ### 🌟 About Me
 - **Age:** Minor
 - **Pronouns:** Any pronouns
+- **Sexuality:** Lithromantic + Omnisexual
 - **Time Zone:** GMT +8
 - **Personality:** Usually sarcastic, socially awkward, or quiet
 
@@ -16,16 +17,7 @@
 
 ---
 
-### 💖 Yumeship / Self-Shipping (Selective Sharing)
-*Please respect my boundaries regarding my self-ships!*
-- ⚔️ **Kris** (Deltarune) x **Inari Kou** (Yume Sona) — **Non Sharing**
-- 🃏 **Sigma** (Bungo Stray Dogs) — **Selective Sharing**
-- 🏀 **Kel** (Omori) — **Selective Sharing**
-
----
-
 ### 💍 OTPs (One True Pairings)
-- 🦊⚔️ **Kris x Inari Kou** (Main Sona OTP!)
 - 🎻🎀 **Sunny x Aubrey** (Omori)
 - 🥪💮 **Hero x Mari** (Omori)
 - 🦌🪓 **Noelle x Susie** (Deltarune)
@@ -36,8 +28,8 @@
 
 ---
 
-### 🔮 Main Fandoms: DELTARUNE & Bungo Stray Dogs (BSD)
-- **Interests:** Deltarune, Bungo Stray Dogs (BSD), Undertale, Omori, Hello Charlotte, Block Tales, Ranfren, Dandy's World, Seraph of the End, Vanitas no Carte, FPE, NSO.
+### 🔮 Main Fandoms: DELTARUNE , OMORI & Bungo Stray Dogs (BSD)
+- **Interests:** Deltarune, Bungo Stray Dogs (BSD), Undertale, Omori, Hello Charlotte, Block Tales, Ranfren, Dandy's World, Seraph of the End, Vanitas no Carte, FPE, NSO, written in stars and time etc.
 - **Likes:** Playing indie games, true crime, reading, and **sleep** 💤
 
 ---
@@ -47,11 +39,12 @@
 
 | Preview | Character / Skin | Fandom / Source | Skin Status / Vibe |
 | :---: | :--- | :--- | :--- |
-| 🦊 | **Inari Kou** | Deltarune Yume Sona | Fox / Kitsune Main Sona |
+| 🦊 | **Inari Kou** | Deltarune Sona | Fox / Kitsune Main Sona |
 | 🛡️ | **Kris** | Deltarune | Active cosplay |
 | 🦌 | **Noelle** | Deltarune | Active cosplay |
 | 🌲 | **Elliot** | Forsaken | Active cosplay |
 | 🕒 | **Two-Time** | Forsaken | Active cosplay|
+| 🐰 | **Aubrey** | Omori | Active cosplay |
 | 🎭 | **Other Cosplays** | Various Fandoms | Frequently switching characters! |
 
 ---
