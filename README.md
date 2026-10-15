@@ -5,15 +5,15 @@
 ### 🌟 About Me
 - **Age:** Minor
 - **Pronouns:** Any pronouns
-- **Sexuality:** Lithromantic + Omnisexual
+- **Sexuality:** Lithromantic
 - **Time Zone:** GMT +8
 - **Personality:** Usually sarcastic, socially awkward, or quiet
 
 ---
 
 ### 🐎 Pony Town & C+H Info
-- **Cuddle + Hide (C+H):** You are **always free to c+h with me!** Don't be shy, feel free to sit, cuddle, or hide with my pony anytime.
-- **Pony Town Spot:** Frequently hanging out around the Deltarune/Undertale map area!
+- **Cuddle + Hide (C+H):** You are **always free to c+h with me!** Don't be shy, feel free to sit, cuddle
+- **Pony Town Spot:** Deltarune/Undertale, Jojos bizarre adventure area
 
 ---
 
@@ -25,11 +25,13 @@
 - 🕒💎 **Two-time x Azure** (Forsaken)
 - 🛡️🐦 **Kris x Berdly** (Deltarune)
 - 📃🚪 **Oliver x Alice** (FPE)
+- ⭐🍒 **Jotaro x Kakyoin** (JJBA)
+- 🎱💫 **Gyro x Johnny** (JJBA)
 
 ---
 
-### 🔮 Main Fandoms: DELTARUNE , OMORI & Bungo Stray Dogs (BSD)
-- **Interests:** Deltarune, Bungo Stray Dogs (BSD), Undertale, Omori, Hello Charlotte, Block Tales, Ranfren, Dandy's World, Seraph of the End, Vanitas no Carte, FPE, NSO, written in stars and time etc.
+### 🔮 Main Fandoms: DELTARUNE , OMORI JJBA & Bungo Stray Dogs (BSD)
+- **Interests:** Deltarune, JJBA, Bungo Stray Dogs (BSD), Undertale, Omori, Hello Charlotte, Block Tales, Ranfren, Dandy's World, Seraph of the End, Vanitas no Carte, FPE, NSO, written in stars and time etc.
 - **Likes:** Playing indie games, true crime, reading, and **sleep** 💤
 
 ---
@@ -59,8 +61,8 @@
 * Please **do not attempt to be freaky with me**, it makes me highly uncomfortable!
 * If I am doing something wrong or say something out of line, please **tell me immediately**.
 * **Cuddles/Sitting:** Completely free! No need to ask.
-* **DNT (Do Not Touch):** No, you can touch/sit by me!
-* **Whispers/PMs:** Open for Deltarune or game chatter!
-* **DNI**: basic criteria, Kris doubles, but I block freely
+* **DNT (Do Not Touch):** you can touch/sit by me!
+* **Whispers/PMs:** Open 
+* **DNI**: basic criteria, Kris doubles, Bucciarati doubles but I block freely
 ---
 
