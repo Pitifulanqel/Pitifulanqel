@@ -24,7 +24,7 @@
 </div>
 
 > **Quick Bio:**  
-> Hi! Im Noe or Vera, im Apagender and don't mind what you refer to me as and im Lithromantic/Demi romantic <3 
+> Hi! Im Noe or Vera, im Apagender and don't mind what you refer to me as and im Lithromantic/Demi romantic <3 I'm open to make friends but I'm shy so please interact first!!!!!
 
 ---
 
