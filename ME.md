@@ -41,8 +41,8 @@
 ###  Sharing status:
  🧡 **Selective Sharing** 
 
-### ✦ Second Main Pairing / (HeavenlyDecay) ✦
-**[ Nikita Mozorov ]** × **[ Dio Brando ]**  
+### ✦ Second Main Pairing / (Diekolai) ✦
+**[ Nikolai "Nikita" Mozorov ]** × **[ Diego Brando ]**  
 *Source Series:* `[ Jojos Bizarre Adventure]`
 
 ###  Sharing status:
