@@ -39,8 +39,8 @@
 **[ Nikva Sokolov ]** × **[ Bruno Bucciarati ]**  
 *Source Series:* `[ Jojos Bizarre Adventure]`
 
-</div>
-* **DNI / Boundaries regarding ship:**  
+</div> 
+  * **DNI / Boundaries regarding ship:**  
   * 🟢 **Sharing F/Os:** Selective Sharing 
 
 
