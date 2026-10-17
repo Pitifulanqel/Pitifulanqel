@@ -1,7 +1,7 @@
 <div align="center">
 
 <!-- TOP HEADER / BANNER IMAGE -->
-<img src="YOUR_BANNER_IMAGE_URL_HERE" width="100%" alt="Header Banner">
+<img width="735" height="245" alt="568" src="https://github.com/user-attachments/assets/0bec33dc-1b53-498a-92bf-4bec5efa02a6" />
 
 # 🖤 ✦ ━━━━━ ꕥ WELCOME ꕥ ━━━━━ ✦ 🖤
 
@@ -33,14 +33,14 @@
 <div align="center">
 
 <!-- OPTIONAL YUME ARTWORK / EMBLEM -->
-  <img width="735" height="245" alt="568" src="https://github.com/user-attachments/assets/0bec33dc-1b53-498a-92bf-4bec5efa02a6" />
+
 
 ### ✦ Main Pairing / (Gold&Gamble) ✦
 **[ Nikva Sokolov ]** × **[ Bruno Bucciarati ]**  
 *Source Series:* `[ Jojos Bizarre Adventure]`
 
 ###  Sharing status:
-* 🧡 **Selective Sharing** 
+ 🧡 **Selective Sharing** 
 
 
 
