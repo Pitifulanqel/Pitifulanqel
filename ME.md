@@ -38,10 +38,15 @@
 ### ✦ Main Pairing / (Gold&Gamble) ✦
 **[ Nikva Sokolov ]** × **[ Bruno Bucciarati ]**  
 *Source Series:* `[ Jojos Bizarre Adventure]`
-
 ###  Sharing status:
  🧡 **Selective Sharing** 
 
+### ✦ Second Main Pairing / (HeavenlyDecay) ✦
+**[ Nikita Mozorov ]** × **[ Dio Brando ]**  
+*Source Series:* `[ Jojos Bizarre Adventure]`
+
+###  Sharing status:
+ 🧡 **Selective Sharing** 
 
 
 ---
